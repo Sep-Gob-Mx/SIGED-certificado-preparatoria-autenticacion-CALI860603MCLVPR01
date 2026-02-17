@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CALI860603MCLVPR01
+CALI860603MCLVPR01
